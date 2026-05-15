@@ -8,9 +8,15 @@ um curso para iniciantes aprendenreem a trabalha com versionamento de código e 
 
 
 
-além disso , vamos trabalha com gitflow ao final do curso e visual studio code 
+além disso , vamos trabalha com gitflow ao final do curso e visual studio code
 
 confira tudo o que temos no youtube e grátis!
 
 
+
+\--- 
+
+pessoas participates 
+
+teo 
 
