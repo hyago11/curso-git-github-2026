@@ -9,6 +9,9 @@ um curso para iniciantes aprendenreem a trabalha com versionamento de código e 
 
 
 além disso , vamos trabalha com gitflow ao final do curso e visual studio code
+confira tud no nosso canal do youtube . e gratis segue o link
+ 
+[curso git 2026 ](htpps://youtube.com/@teomewhy)
 
 confira tudo o que temos no youtube e grátis!
 
