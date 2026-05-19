@@ -15,11 +15,14 @@ confira tud no nosso canal do youtube . e gratis segue o link
 
 confira tudo o que temos no youtube e grátis!
 
+alem do nosso youtube se ligue no nosso site e agenda , e fique por dentro de tudo que vai rola no ano de 2026
+acesse o site , muito foda 
+[teomewhy.org]( https://teomewhy.org/schedule)
 
 
 \--- 
 
 pessoas participates 
 
-teo 
 
+teo 
